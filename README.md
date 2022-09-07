@@ -1,4 +1,4 @@
-✨ Hi there ✨ /play flawless
+✨ Hi there ✨
 
 I am an actuary graduated from the Faculty of Sciences. :two_hearts:
 
